@@ -1,2 +1,0 @@
-# agasgfhadgshdgtdghsjhsdjg
-hwid.txt
